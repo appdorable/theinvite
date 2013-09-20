@@ -1,4 +1,4 @@
-## Clothes for Apps
+## The Invite
 
 By Francis Go and Olesia Rudakova.
 
